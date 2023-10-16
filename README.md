@@ -6,4 +6,4 @@ follow along project - resources & guidness by Net Ninja on youtube:
 
 part 1 - done
 
-part 2 - leason 11 - 00:00
+part 2 - leason 16 - 00:00
